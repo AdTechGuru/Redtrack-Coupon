@@ -54,6 +54,26 @@ Each plan includes core tracking features, with higher tiers offering more users
 
 📝 **Note:** Combining your coupon with an annual subscription adds an **[extra 15% discount](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)**, so don't wait and maximize your savings today!
 
+┌─────────────────────── ✂ ───────────────────────┐
+│                                                 │
+│           🔥 EXCLUSIVE COUPON CODE 🔥           │
+│                                                 │
+│            Up to 70% OFF All Plans              │
+│           + 14 Days FREE Trial Access           │
+│                                                 │
+│           ┌───────────────────────┐            │
+│           │                       │            │
+│           │   BLOGGINGECLIPSE     │            │
+│           │                       │            │
+│           └───────────────────────┘            │
+│                                                 │
+│               LIMITED TIME OFFER                │
+│                MAY 2025 SPECIAL                 │
+│                                                 │
+│      REDEEM AT: voluum.com/partner/bloggingeclipse/   │
+│                                                 │
+└─────────────────────── ✂ ───────────────────────┘
+
 ---
 
 ### **AFFNINJAMAX: Extra 20% OFF + FREE 2 Months**
