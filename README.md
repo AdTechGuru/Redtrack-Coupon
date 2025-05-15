@@ -58,7 +58,7 @@ Each plan includes core tracking features, with higher tiers offering more users
 
 ### **AFFNINJAMAX: Extra 20% OFF + FREE 2 Months**
 
-This is our top pick for most marketers! The **AFFNINJAMAX** coupon gives you 20% off for 3 months on your RedTrack subscription. This exclusive discount helps new users save significantly during the crucial initial period when you're setting up campaigns and learning the platform.
+This is our top pick for most marketers! The **[AFFNINJAMAX](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)** coupon gives you 20% off for 3 months on your RedTrack subscription. This exclusive discount helps new users save significantly during the crucial initial period when you're setting up campaigns and learning the platform.
 
 **How much you'll save:** With this code, you'll get 20% off for three full months. For example, on the Solo Plan, that's a saving of about $89.40 over three months.
 
@@ -66,13 +66,13 @@ This is our top pick for most marketers! The **AFFNINJAMAX** coupon gives you 20
 
 ### **AFFNINJA: $888 Discount on Brand Plan (Extra 20% OFF on checkout)**
 
-Perfect for established marketers looking to scale up! This **AFFNINJA** code gives you a whopping $888 discount on the Brand Plan, plus an extra 20% off at checkout. If you're running multiple campaigns and need advanced features, this coupon delivers serious value.
+Perfect for established marketers looking to scale up! This **[AFFNINJA](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)** code gives you a whopping $888 discount on the Brand Plan, plus an extra 20% off at checkout. If you're running multiple campaigns and need advanced features, this coupon delivers serious value.
 
 ---
 
 ### **aff-ninja-bf24: Save $2000 on Annual Agency Plan + Complimentary 2 Months**
 
-This is the big one! With the **aff-ninja-bf24** coupon code, you'll save a massive $2000 on the Annual Agency Plan, plus get 2 months completely free. That's essentially getting 14 months for the price of 10 months, with an additional $2000 discount applied!
+This is the big one! With the **[aff-ninja-bf24](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)** coupon code, you'll save a massive $2000 on the Annual Agency Plan, plus get 2 months completely free. That's essentially getting 14 months for the price of 10 months, with an additional $2000 discount applied!
 
 **Bonus Savings:** Annual plans already give you 2 months free (pay for 10, get 12). Combined with these coupon codes, the savings are substantial.
 
