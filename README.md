@@ -134,7 +134,7 @@ RedTrack isn't just another expense – it's an investment that pays for itself.
 - **Improved ROAS:** Better tracking means better decisions, which ultimately leads to higher returns on your ad spend.  
 - **Expert endorsement:** The tool is recommended by Aff.Ninja, a trusted resource in the affiliate marketing community.  
 
-> *"The switch to RedTrack was the best decision we made for our media buying team. Their fraud prevention features and multi-channel tracking have helped us scale our campaigns while maintaining profitable ROAS."* – Aliakbar Fakhri, CEO of AFFNinja
+> *"The switch to RedTrack was the best decision we made for our media buying team. Their fraud prevention features and multi-channel tracking have helped us scale our campaigns while maintaining profitable ROAS."* – **Aliakbar Fakhri, CEO of AFFNinja**
 
 
 [![Redtrack Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747306649/Redtrack_Discount_Coupon_4_bycd2x.jpg)](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)
