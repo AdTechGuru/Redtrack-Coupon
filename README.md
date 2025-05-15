@@ -166,4 +166,5 @@ RedTrack coupon codes like **AFFNINJAMAX** (20% off for 3 months), **AFFNINJA** 
 Remember, proper tracking isn't an expense—it’s an investment that pays huge dividends in campaign performance. With RedTrack's robust features and these exclusive discounts, you're set up for tracking success without breaking the bank.
 
 **Ready to supercharge your tracking while saving big?**  
-👉 [Click Here To Claim Your RedTrack Discount Now!](https://redtrack.io/partners/affninja?ref=VmHLffJT)
+
+[![Click Here To Claim Your RedTrack Discount Now!](https://res.cloudinary.com/drzqec0oi/image/upload/v1747306842/Click_Here_To_Claim_Your_RedTrack_Discount_Now_o6flgf.png)](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)
