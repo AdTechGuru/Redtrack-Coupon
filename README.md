@@ -56,7 +56,8 @@ Each plan includes core tracking features, with higher tiers offering more users
 
 ---
 
-[### **AFFNINJAMAX: Extra 20% OFF + FREE 2 Months**](https://redtrack.io/partners/affninja?ref=VmHLffJT0Y82oiyKjqu4hoohlkJEzE)
+### **AFFNINJAMAX: Extra 20% OFF + FREE 2 Months**
+
 This is our top pick for most marketers! The **AFFNINJAMAX** coupon gives you 20% off for 3 months on your RedTrack subscription. This exclusive discount helps new users save significantly during the crucial initial period when you're setting up campaigns and learning the platform.
 
 **How much you'll save:** With this code, you'll get 20% off for three full months. For example, on the Solo Plan, that's a saving of about $89.40 over three months.
